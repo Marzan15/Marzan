@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Marzan15
-- 👀 I’m interested in....idk
+- 👀 I’m interested in exploring everything
 - 🌱 I’m currently learning  Python
 - 📫 How to reach me  telegram - t.me/marzan15
 
